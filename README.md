@@ -1,2 +1,3 @@
 # TIL
-Today I Learned
+> ___Steady is greatest strength___ 🔥
+
